@@ -1,4 +1,5 @@
 # NoHesiCracked
 NoHesiCracked
 ADD ME ON DISCORD IF YOU CANT SEE THE FILE BECAUSE OF COPY RIGHT CLAIMS.
+Discord: imagine_hacking_65100
 
